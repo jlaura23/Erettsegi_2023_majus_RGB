@@ -1,0 +1,1 @@
+Erettsegi feladat megoldasa
